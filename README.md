@@ -1,1 +1,1 @@
-my first readme
+MY name is Agu Akaolisa
